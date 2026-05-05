@@ -1,7 +1,3 @@
-Here’s a **clean, verified list of colleges in Udupi / Manipal / Mangalore** that actually offer **Nutrition / Dietetics / Food Science programs** (UG or PG). I’ve filtered out generic institutes and kept only **relevant degree colleges**.
-
----
-
 # 📍 Manipal / Udupi Colleges (Nutrition & Dietetics)
 
 ## 🎓 Manipal College of Health Professions

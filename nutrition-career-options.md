@@ -1,4 +1,3 @@
-
 # 🥗 Career Options in Nutrition & Dietetics
 
 If you’re interested in **Nutrition & Dietetics** around **Udupi / Manipal / Mangalore**, you actually have a solid mix of **clinical, wellness, and lifestyle careers**—and most of these **do NOT require NEET**.
